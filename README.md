@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FrozenTr33
+- 👋 Hi, I’m @FrozenTr33.
 - 👀 I’m interested in - Making games, but motivation is one hell of a killer.
 - 🌱 I’m currently learning - How to code stuff. :>
 - 💞️ I’m looking to collaborate on - Projects? Maybe? I don't know, it depends.
